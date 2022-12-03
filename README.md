@@ -8,5 +8,3 @@ My nickname: HOHO``, Nov30th, July13th
 **🖥 𝙵𝚞𝚕𝚕-𝚜𝚝𝚊𝚌𝚔 𝚜𝚘𝚏𝚝𝚠𝚊𝚛𝚎/hardware 𝚍𝚎𝚟𝚎𝚕𝚘𝚙𝚎𝚛/engineer**
 
 > Blog: [HOHO`` Blog](https://hoho.im)
-
-> Old Blog: [HOHO`` Old Blog](https://hoho.im/blog)
